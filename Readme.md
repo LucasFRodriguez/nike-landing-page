@@ -1,0 +1,1 @@
+Esse projeto é com o intuito de aprendizado e praticar!
